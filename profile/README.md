@@ -1,3 +1,11 @@
-SQL.ag is about regenerative soil building and optimization of quality and productivity in LIVING soil ecosystems. Sequester C as LIFE to improve quality.
+# sequester C as LIFE
 
-Only LIVING things develop and evolve intelligence. Do not take LIFE or the intelligence of living ecosystems for granted unless you have actually ***created*** living ecosystems from scratch. Carbon-based ecosystems develop from carbon-based neurochemistry.
+SQL.ag is entirely driven by the NEED to sustainably optimizing quality of soil for the long-term fitness of the soil to accomplish human purposes. 
+
+It's immediately about what the owner of the soil needs to accomplish... but it telescopically throughout the ages to  include those purposes are about very the long-term or of benefit to others. 
+
+Soil quality depends upon productivity in LIVING soil ecosystems ... it's not primarily about the barren, lifeless realm of chemistry, moleculess, information or artifical intelligence, even though those things matter a great deal as inputs for improving LIVING soil ecosystems.
+
+Our motto is ***sequester C as LIFE***  ... we improve quality for the sake of improving long-term productivty and while maximizing immediate value in every sense of the word.
+
+In case there was any doubt, ***we see any and all insanely stupid marketing verbiage that is about making a business "carbon free" as being proof of fundamentally INSANE, but dangerous imbecility.***
