@@ -8,4 +8,3 @@ Soil quality depends upon productivity in LIVING soil ecosystems ... it's not pr
 
 Our motto is ***sequester C as LIFE***  ... we improve quality for the sake of improving long-term productivty and while maximizing immediate value in every sense of the word.
 
-In case there was any doubt, ***we see any and all insanely stupid marketing verbiage that is about making a business "carbon free" as being proof of fundamentally INSANE, but dangerous imbecility.***
