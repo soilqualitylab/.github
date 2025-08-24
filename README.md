@@ -1,1 +1,1 @@
-[soilqualitylab.github.io](https://soilqualitylab.github.io) is our curated portfolio of a 100-Module graduate-level ML/AI Ops curriculum in engineering development of Soil Quality Laboratory foundation models.
+[soilqualitylab.github.io](https://github.com/soilqualitylab/soilqualitylab.github.io) is our curated portfolio of materials for a 100-Module graduate-level ML/AI Ops curriculum in engineering development of Soil Quality Laboratory foundation models.
